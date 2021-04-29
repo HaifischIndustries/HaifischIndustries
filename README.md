@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @HaifischIndustries
+- 👋 Hi, I’m @Haifisch
 - 👀 I’m interested in learning to breathe
 - 🌱 I’m currently learning to breathe
 - 💞️ I’m looking to collaborate on someone who also wants to breathe
